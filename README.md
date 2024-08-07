@@ -2,8 +2,8 @@
 - 👀 I’m interested in ui/ux desiging ,passionate in fashion worl 
 - 🌱 I’m currently learning ui/ux desiging 
 - 💞️ I’m looking to collaborate on any project related to designg graphics 
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me ...email: janhviupadhyayuj@gmail.com
+- 😄 Pronouns: ...she/her
 - 📚 Future Plans: I plan to pursue a master's degree in fashion management to combine my technical skills with my love for fashion, aiming to innovate and lead in the fashion industry.
 - ⚡ Fun fact: ...
 
